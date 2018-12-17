@@ -42,7 +42,7 @@ Se você está sendo assediado, observando que alguém está sendo assediado ou 
 Contatos:
 
 Caio Tarifa | Cibele Yumi | Ivan Scher | Ronaldo Faria Lima
-:---: | :---: | :---:
+:---: | :---: | :---: | :---:
 caiotarifa@gmail.com | contato@cibeleyumi.com.br | ivanscher@gmail.com | ronaldo.faria.lima@gmail.com
 (16) 98831-1731 | (11) 99659-2053 | (16) 99332-6372 | (16) 98136-5287
 
