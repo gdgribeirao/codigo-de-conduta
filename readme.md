@@ -42,7 +42,7 @@ Se você está sendo assediado, observando que alguém está sendo assediado ou 
 Contatos:
 
 Caio Tarifa | Ivan Scher | Ronaldo Faria Lima
-:---: | :---: | :---: | :---:
+:---: | :---: | :---:
 caiotarifa[at]gmail.com | ivanscher[at]gmail.com | ronaldo.faria.lima[at]gmail.com
 (16) 98831-1731 | (16) 99332-6372 | (16) 98136-5287
 
