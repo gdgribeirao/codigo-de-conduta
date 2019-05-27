@@ -70,7 +70,7 @@ Contatos:
 
 Caio Tarifa | Ronaldo Faria Lima
 :---: | :---:
-caiotarifa@gmail.com | ronaldo.faria.lima@gmail.com
+caiotarifa[at]gmail.com | ronaldo.faria.lima[at]gmail.com
 (16) 98831-1731 | (16) 98136-5287
 
 _Esperemos nunca precisar desta política, mas acreditamos que ter este documento
