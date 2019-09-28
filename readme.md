@@ -68,10 +68,10 @@ aqueles que sofrem assédio a se sentirem seguros durante o período de evento.
 
 Contatos:
 
-Caio Tarifa | Ronaldo Faria Lima
-:---: | :---:
-caiotarifa[at]gmail.com | ronaldo.faria.lima[at]gmail.com
-(16) 98831-1731 | (16) 98136-5287
+Caio Tarifa | Ronaldo Faria Lima | Welton Gomes
+:---: | :---: | :---:
+caiotarifa@<!-- -->gmail.com | ronaldo.faria.lima@<!-- -->gmail.com | clorofila@<!-- -->gmail.com
+(16) 98831-1731 | (16) 98136-5287 | (16) 99232-1363
 
 _Esperemos nunca precisar desta política, mas acreditamos que ter este documento
 ajuda todos a pensar um pouco mais sobre como suas ações e palavras afetam toda
